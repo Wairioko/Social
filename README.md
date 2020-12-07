@@ -1,3 +1,0 @@
-# Simple-Social
-# jhg
-# jhg
